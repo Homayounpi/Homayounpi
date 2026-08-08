@@ -1,8 +1,5 @@
-# 💫 About Me:
 
 
-
-## 🌐 Socials:
 
 
 
